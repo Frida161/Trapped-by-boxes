@@ -15,4 +15,3 @@ comfortable and relaxing way to live.
 
 ![35881664423566_ pic](https://user-images.githubusercontent.com/65965736/192934962-d4a66edb-ab29-4371-9cf7-1eff5e5f6ccd.jpg)
 
-![35811664423359_ pic](https://user-images.githubusercontent.com/65965736/192935017-5965f7a8-b842-4aa1-b1d5-9ac2d9884a60.jpg)
